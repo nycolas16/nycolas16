@@ -1,0 +1,2 @@
+- Hi, my name is Nycolas!
+- my english is very bad lmao ;-;
